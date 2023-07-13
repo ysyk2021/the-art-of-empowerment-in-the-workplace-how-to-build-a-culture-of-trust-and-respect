@@ -1,4 +1,4 @@
-Chapter 2: Defining Empowerment: Understanding the Science Behind Empowerment
+Understanding the Science Behind Empowerment
 =============================================================================
 
 Empowerment is a term that is often used in the workplace, but its meaning can be difficult to define. At its core, empowerment refers to the process of enabling individuals to take control of their lives and make decisions that affect their own well-being and that of their community.

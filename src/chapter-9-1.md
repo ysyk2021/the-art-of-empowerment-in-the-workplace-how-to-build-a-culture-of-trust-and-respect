@@ -1,4 +1,4 @@
-Chapter 9: Measuring Results and Learning from Experience: Tracking Progress and Measuring Results
+Tracking Progress and Measuring Results
 ==================================================================================================
 
 Measuring results and learning from experience is essential for building a culture of empowerment in the workplace. By tracking progress and measuring results, organizations can identify strengths and weaknesses, evaluate the effectiveness of their strategies and initiatives, and make informed decisions about future directions. This chapter will explore the importance of tracking progress and measuring results, and provide strategies for effectively evaluating and improving the success of your organization.

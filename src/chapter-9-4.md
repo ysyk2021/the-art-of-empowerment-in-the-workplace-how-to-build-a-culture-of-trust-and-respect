@@ -1,4 +1,4 @@
-Chapter 9: Measuring Results and Learning from Experience: Adapting to Changes in the Workplace
+Adapting to Changes in the Workplace
 ===============================================================================================
 
 Adapting to changes in the workplace is critical for building a culture of empowerment. Change is inevitable, and organizations that are able to adapt quickly and effectively can gain a competitive advantage and promote engagement, ownership, and commitment among employees. In this chapter, we will explore the importance of measuring results and learning from experience when adapting to changes in the workplace.

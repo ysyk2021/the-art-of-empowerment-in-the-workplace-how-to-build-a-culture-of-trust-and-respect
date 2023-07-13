@@ -1,4 +1,4 @@
-Chapter 3: Developing an Empowering Mindset: Techniques for Cultivating an Empowering Mindset
+Techniques for Cultivating an Empowering Mindset
 =============================================================================================
 
 Developing an empowering mindset is essential for building a culture of trust and respect in the workplace. When you approach your work with an empowering mindset, you are more likely to inspire and motivate others, promote collaboration and innovation, and create opportunities for growth and development.

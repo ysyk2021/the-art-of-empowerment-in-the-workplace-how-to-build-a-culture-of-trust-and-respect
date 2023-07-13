@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Benefits of Building a Culture of Trust and Respect
+Benefits of Building a Culture of Trust and Respect
 ============================================================================
 
 Building a culture of trust and respect is essential for creating a workplace where individuals can thrive and reach their full potential. When employees feel valued, supported, and empowered, they are more likely to be engaged, productive, and committed to the organization's mission and values.

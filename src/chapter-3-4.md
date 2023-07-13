@@ -1,4 +1,4 @@
-Chapter 3: Developing an Empowering Mindset: Developing Empathy and Compassion Through Empowerment
+Developing Empathy and Compassion Through Empowerment
 ==================================================================================================
 
 Developing an empowering mindset is critical for building a culture of empowerment in the workplace. This involves developing empathy and compassion towards others, and recognizing that everyone has unique strengths and challenges. By adopting an empowering mindset, individuals can create a work environment where everyone feels valued, supported, and empowered to take ownership of their work. In this chapter, we will explore strategies for developing empathy and compassion through empowerment.

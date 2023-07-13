@@ -1,4 +1,4 @@
-Chapter 6: Nurturing Growth and Development: Encouraging Mentorship and Coaching
+Encouraging Mentorship and Coaching
 ================================================================================
 
 An important aspect of empowerment in the workplace is nurturing growth and development among team members. By providing opportunities for mentorship and coaching, you can help your employees reach their full potential and achieve greater job satisfaction.

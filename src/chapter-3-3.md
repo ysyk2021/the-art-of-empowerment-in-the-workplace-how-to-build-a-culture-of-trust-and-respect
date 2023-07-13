@@ -1,4 +1,4 @@
-Chapter 3: Developing an Empowering Mindset: Setting Realistic Goals and Objectives
+Setting Realistic Goals and Objectives
 ===================================================================================
 
 Developing an empowering mindset is critical for building a culture of empowerment in the workplace. One way to develop an empowering mindset is by setting realistic goals and objectives. When individuals have clear goals and objectives that are achievable and aligned with the organization's mission and values, they are more likely to be invested in the success of the organization, make decisions that benefit both themselves and the organization, and achieve their full potential. In this chapter, we will explore strategies for setting realistic goals and objectives in the workplace.

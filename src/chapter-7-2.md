@@ -1,4 +1,4 @@
-Chapter 7: Managing Change Through Empowerment: Developing Strategies for Leading Change
+Developing Strategies for Leading Change
 ========================================================================================
 
 Managing change is critical for building a culture of empowerment in the workplace. Change can be disruptive and unsettling, but by empowering individuals to take ownership of the change process, organizations can create a work environment where everyone feels valued and supported. In this chapter, we will explore strategies for managing change through empowerment, including fostering open communication and feedback, encouraging participation and collaboration, promoting a sense of ownership and accountability, and providing support and resources.

@@ -1,4 +1,4 @@
-Chapter 7: Managing Change Through Empowerment: Celebrating Successes and Recognizing Accomplishments
+Celebrating Successes and Recognizing Accomplishments
 =====================================================================================================
 
 Managing change through empowerment is not just about managing resistance and conflict; it's also about celebrating successes and recognizing accomplishments along the way. By celebrating successes and recognizing accomplishments, individuals can build confidence and motivation among colleagues, and promote a sense of investment and ownership in the success of the organization. In this chapter, we will explore strategies for celebrating successes and recognizing accomplishments during the change process.

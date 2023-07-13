@@ -1,4 +1,4 @@
-Chapter 5: Providing Autonomy and Accountability: Developing Effective Delegation Strategies
+Developing Effective Delegation Strategies
 ============================================================================================
 
 Providing autonomy and accountability is critical for building a culture of empowerment in the workplace. One way to provide autonomy and accountability is through effective delegation strategies. When individuals feel that they are trusted to take ownership of their work, they are more likely to be invested in the success of the organization, make decisions that benefit both themselves and the organization, and achieve their full potential. In this chapter, we will explore strategies for developing effective delegation skills in the workplace.

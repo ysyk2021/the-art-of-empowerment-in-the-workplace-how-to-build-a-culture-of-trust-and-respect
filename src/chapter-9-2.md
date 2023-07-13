@@ -1,4 +1,4 @@
-Chapter 9: Measuring Results and Learning from Experience: Reflection and Self-Evaluation
+Reflection and Self-Evaluation
 =========================================================================================
 
 Reflection and self-evaluation are important for building a culture of empowerment in the workplace. By engaging in reflection and self-evaluation, individuals can develop a deeper understanding of their own capabilities and limitations, and identify strategies for enhancing their skills and knowledge. This chapter will focus on the importance of reflection and self-evaluation, and strategies for promoting them in the workplace.

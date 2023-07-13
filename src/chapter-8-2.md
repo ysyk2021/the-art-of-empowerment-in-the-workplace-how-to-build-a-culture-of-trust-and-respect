@@ -1,4 +1,4 @@
-Chapter 8: Building a Culture of Empowerment: Providing Resources and Support
+Providing Resources and Support
 =============================================================================
 
 Providing resources and support is essential for building a culture of empowerment in the workplace. When employees have access to the tools, information, and support they need to succeed, they are more likely to take ownership of their work, make decisions that affect their own well-being and that of the organization, and feel empowered to take on new challenges and opportunities.

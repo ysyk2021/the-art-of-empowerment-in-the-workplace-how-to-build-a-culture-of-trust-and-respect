@@ -1,4 +1,4 @@
-Chapter 7: Managing Change Through Empowerment: Managing Resistance and Conflict
+Managing Resistance and Conflict
 ================================================================================
 
 Managing resistance and conflict is a critical aspect of managing change through empowerment. Change can be disruptive and unsettling, and individuals may resist or oppose the change for a variety of reasons. In this chapter, we will explore strategies for managing resistance and conflict during the change process, including understanding the sources of resistance, fostering open communication and feedback, promoting collaboration and cooperation, and providing support and resources.

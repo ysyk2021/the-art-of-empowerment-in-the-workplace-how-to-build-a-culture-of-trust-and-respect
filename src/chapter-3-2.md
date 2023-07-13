@@ -1,4 +1,4 @@
-Chapter 3: Developing an Empowering Mindset: Utilizing Positive Self-Talk and Visualization
+Utilizing Positive Self-Talk and Visualization
 ===========================================================================================
 
 Developing an empowering mindset is critical for building a culture of empowerment in the workplace. One way to develop an empowering mindset is by utilizing positive self-talk and visualization. When individuals have a positive mindset and visualize success, they are more likely to be invested in the success of the organization, make decisions that benefit both themselves and the organization, and achieve their full potential. In this chapter, we will explore strategies for utilizing positive self-talk and visualization in the workplace.

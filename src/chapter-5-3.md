@@ -1,4 +1,4 @@
-Chapter 5: Providing Autonomy and Accountability: Providing Feedback and Recognition
+Providing Feedback and Recognition
 ====================================================================================
 
 Autonomy and accountability are essential components of empowerment in the workplace. By providing your team members with autonomy and holding them accountable for their work, you can create a culture of trust and respect that fosters innovation and growth.

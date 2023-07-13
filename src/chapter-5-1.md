@@ -1,4 +1,4 @@
-Chapter 5: Providing Autonomy and Accountability: Understanding the Principles of Autonomy and Accountability
+Understanding the Principles of Autonomy and Accountability
 =============================================================================================================
 
 Providing autonomy and accountability is critical for building a culture of empowerment in the workplace. When individuals are given the freedom to make decisions and take ownership of their work, while also being held accountable for their actions, they are more likely to be invested in the success of the organization, make decisions that benefit both themselves and the organization, and achieve their full potential. In this chapter, we will explore the principles of autonomy and accountability and how they can be applied in the workplace.

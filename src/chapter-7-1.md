@@ -1,4 +1,4 @@
-Chapter 7: Managing Change Through Empowerment: Understanding the Nature of Change
+Understanding the Nature of Change
 ==================================================================================
 
 Managing change through empowerment is critical for building a culture of trust and respect in the workplace. However, change can be difficult to manage and implement, and can often lead to resistance and conflict among colleagues. In order to effectively manage change, it is important to understand the nature of change itself. In this chapter, we will explore the different types of change, and strategies for managing change through empowerment.

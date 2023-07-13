@@ -1,4 +1,4 @@
-Chapter 5: Providing Autonomy and Accountability: Encouraging Ownership and Responsibility
+Encouraging Ownership and Responsibility
 ==========================================================================================
 
 Providing autonomy and accountability is a critical component of building a culture of trust and respect in the workplace. When employees are given the freedom to make decisions and take ownership of their work, they are more likely to be engaged, productive, and committed to the organization's mission and values.

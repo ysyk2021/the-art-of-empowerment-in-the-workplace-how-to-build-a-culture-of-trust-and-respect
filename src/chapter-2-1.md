@@ -1,4 +1,4 @@
-Chapter 2: Defining Empowerment: Overview of Empowerment
+Overview of Empowerment
 ========================================================
 
 Empowerment is a term that has gained increasing attention in the workplace in recent years. It refers to the process of enabling individuals to take control of their lives and make decisions that affect their own well-being and that of their community. Empowerment can take many different forms and can be viewed from a number of different perspectives.

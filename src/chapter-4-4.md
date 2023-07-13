@@ -1,4 +1,4 @@
-Chapter 4: Fostering Trust and Respect: Fostering Authenticity and Transparency
+Fostering Authenticity and Transparency
 ===============================================================================
 
 Fostering trust and respect is critical for building a culture of empowerment in the workplace. One way to foster trust and respect is by fostering authenticity and transparency. When individuals feel that they can be their true selves and that information is shared openly and honestly, they are more likely to be invested in the success of the organization, make decisions that benefit both themselves and the organization, and achieve their full potential. In this chapter, we will explore strategies for fostering authenticity and transparency in the workplace.

@@ -1,4 +1,4 @@
-Chapter 6: Nurturing Growth and Development: Identifying Opportunities for Growth and Development
+Identifying Opportunities for Growth and Development
 =================================================================================================
 
 Nurturing growth and development is a critical component of building a culture of trust and respect in the workplace. When employees feel supported and empowered to grow and develop in their roles, they are more likely to be engaged, productive, and committed to the organization's mission and values.
