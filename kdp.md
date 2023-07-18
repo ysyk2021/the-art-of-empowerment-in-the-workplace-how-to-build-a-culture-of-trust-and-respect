@@ -10,7 +10,6 @@ Whether you're a manager, HR professional, or team member, "The Art Of Empowerme
 
 Don't miss out on this essential guide to transforming your workplace into a more positive and productive environment.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
