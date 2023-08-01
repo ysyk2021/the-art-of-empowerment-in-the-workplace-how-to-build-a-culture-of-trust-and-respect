@@ -14,8 +14,6 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-Here are 20 Amazon search keywords related to "The Art Of Empowerment In The Workplace: How To Build A Culture Of Trust And Respect":
-
 1. Leadership development
 2. Employee empowerment
 3. Workplace culture
