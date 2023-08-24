@@ -1,5 +1,3 @@
-Encouraging Mentorship and Coaching
-==============================================
 
 Building a culture of trust and respect in the workplace goes hand in hand with fostering mentorship and coaching opportunities. In this chapter, we will explore the importance of mentorship and coaching and how to encourage these practices within your organization. By embracing mentorship and coaching, you can empower employees to grow, learn from one another, and contribute to the overall success of the organization.
 

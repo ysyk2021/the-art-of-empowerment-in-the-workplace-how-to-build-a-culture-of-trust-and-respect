@@ -1,5 +1,3 @@
-Chapter 2: Defining Empowerment
-===============================
 
 Defining empowerment is critical for building a culture of empowerment in the workplace. Empowerment involves providing individuals with the resources, support, and autonomy needed to take ownership of their work, make decisions that affect their own well-being and that of the organization, and achieve their full potential. This chapter will provide an overview of empowerment, explore the science behind empowerment, and offer strategies for assessing your personal approach to empowerment.
 

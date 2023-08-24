@@ -1,5 +1,3 @@
-Providing Feedback and Recognition
-=============================================
 
 In this chapter, we will explore the importance of providing feedback and recognition in the workplace. We will discuss how effective feedback and meaningful recognition contribute to building a culture of trust, growth, and employee engagement. We will also provide strategies for delivering constructive feedback and implementing a comprehensive recognition program.
 

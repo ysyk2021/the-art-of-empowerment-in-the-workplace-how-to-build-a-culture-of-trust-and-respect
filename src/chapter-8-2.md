@@ -1,5 +1,3 @@
-Providing Resources and Support
-==========================================
 
 In this chapter, we will explore the importance of providing resources and support to build a culture of trust and respect in the workplace. By offering the necessary tools, knowledge, and assistance, organizations can empower individuals and teams to reach their full potential, foster collaboration, and cultivate a supportive environment.
 

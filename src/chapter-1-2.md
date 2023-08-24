@@ -1,5 +1,3 @@
-Common Misconceptions About Empowerment
-==================================================
 
 In this chapter, we will address some common misconceptions about empowerment in the workplace. These misconceptions often hinder organizations from fully embracing and implementing effective empowerment strategies. By debunking these misconceptions, we can gain a clearer understanding of what empowerment truly entails.
 

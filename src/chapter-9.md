@@ -1,5 +1,3 @@
-Chapter 9: Measuring Results and Learning from Experience
-=========================================================
 
 Measuring results and learning from experience is critical for building a culture of empowerment in the workplace. By tracking progress, reflecting on experiences, and continuously learning and improving, organizations can identify opportunities for growth and development, promote accountability and ownership among employees, and position themselves for long-term success and competitiveness.
 

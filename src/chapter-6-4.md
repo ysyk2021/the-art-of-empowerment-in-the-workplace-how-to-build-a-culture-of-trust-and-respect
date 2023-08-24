@@ -1,5 +1,3 @@
-Fostering Creativity and Innovation
-================================================================================
 
 Nurturing growth and development is critical for building a culture of empowerment in the workplace. One way to nurture growth and development is by fostering creativity and innovation. When individuals feel that they are encouraged to think outside the box and explore new ideas, they are more likely to be invested in the success of the organization, make decisions that benefit both themselves and the organization, and achieve their full potential. In this chapter, we will explore strategies for fostering creativity and innovation in the workplace.
 
